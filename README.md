@@ -1,1 +1,1 @@
-# rsschool-cv
+https://MaDi787.github.io/rsschool-cv/
